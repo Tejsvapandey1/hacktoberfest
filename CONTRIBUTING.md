@@ -1,3 +1,10 @@
+#### Name: [Tejsvapandey1](https://github.com/Tejsvapandey1)
+
+- Place: Uttarpradesh,India
+- Bio: Fullstack Developer,Electrical engineer ,Python Developer
+- GitHub: [Tejsvapandey1](https://github.com/Tejsvapandey1)r
+
+
 #### Name: [3mYouOL](https://github.com/3mYouOL)
 
 - Place: Iloilo, Philippines
